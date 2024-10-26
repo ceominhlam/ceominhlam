@@ -1,22 +1,20 @@
-Welcome to Lumache's documentation!
-===================================
+CEO Minh Lâm, người lãnh đạo xuất sắc của nhà cái GK88, với tầm nhìn chiến lược cùng khả năng lãnh đạo tài tình, ông đã xây dựng GK88 trở thành một thương hiệu uy tín trong ngành giải trí trực tuyến. Địa chỉ: 6A Trần Văn Ơn, Tân Sơn Nhì, Tân Phú, Hồ Chí Minh, Vietnam. Phone: 0326598470. Email: info@sgk88.com. Website: https://sgk88.com/ceo-minh-lam/ #gk88 #ceominhlam #ceominhlam_gk88 #dangkygk88 #dangnhapgk88
+https://www.facebook.com/ceominhlamgk88/
 
-**Lumache** (/lu'make/) is a Python library for cooks and food lovers
-that creates recipes mixing random ingredients.
-It pulls data from the `Open Food Facts database <https://world.openfoodfacts.org/>`_
-and offers a *simple* and *intuitive* API.
+https://x.com/ceominhlamgk88
 
-Check out the :doc:`usage` section for further information, including
-how to :ref:`installation` the project.
+https://www.youtube.com/@ceominhlamgk88
 
-.. note::
+https://www.pinterest.com/ceominhlamgk88
 
-   This project is under active development.
+https://vimeo.com/ceominhlamgk88
 
-Contents
---------
+https://www.blogger.com/profile/00951525081198947200
 
-.. toctree::
+https://gravatar.com/ceominhlamgk88
 
-   usage
-   api
+https://talk.plesk.com/members/ceominhlamgk.373173/#about
+
+https://www.zillow.com/profile/ceominhlamgk88
+
+https://prnguyenhongquang847456.systeme.io/
